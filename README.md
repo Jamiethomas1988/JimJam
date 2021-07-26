@@ -1,2 +1,2 @@
 # JimJam
-Awakened human being looking to make a difference in this world
+Let's work together and save the World
